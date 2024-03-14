@@ -1,14 +1,17 @@
 adam 28 89289 234ino in2o3 ino23
 
-non 8923 87 82 9ion2 o ino23ino 2io n3234 ice beg tita 82 89 82879 2789 89238 28923 782 7839 879238 9 89238 9 892323 tit 892 8989239  noi23 oi 234 ab
+non 8923 87 82 9ion2 o ino![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/0fc71c9e-f257-4295-94c4-f77aeef2072f)
+23ino 2io n3234 ice beg tita 82 89 82879 2789 89238 28923 782 7839 879238 9 89238 9 892323 tit 892 8989239  noi23 oi 234 ab
 
 iceberg toitan 82 897892 98ion2 nio ino2 ino2348 92 i2i3 o oni2 noi ino234 8928 792 789 78293 8928 9 i2 no ino2 nio io23 4 common 8 289 892 234 
 6/6  892 87789 2 879 8923i o2n oin2 ino2 oin3 ino23 ion2 382 89 23 inoio2 i3o423 
-2 34n
+2 34n![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/888fdc5f-33bf-4ab6-b088-5a5736b4f76a)
+
 i2
 i 34i  rage i2u nio2 oinin23 ion2i on nio2 ino23 48923 89oi2  ino2 ion3 ino23489 27  i923 ino oin23 inoi on23  oi 2 iooi n23
  n2
- 3i4 ni23
+ 3i4 ni23![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/f527df00-a6bb-4163-9207-f66978899255)
+
  ni4
  in234234 23 234oiin2o3o4 rage 28872 7892 98io2 nio noi23 ino23 
 in 233
@@ -46,14 +49,18 @@ ha
 ha
   ceo 288289 8972 789 283 o2i3i no2 3892  2 23ionion23 892 879293 no i23 oo234 oi23ino io
 
-ceo 
+ceo ![download](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/7fef4c02-ecd0-4871-805a-68fa0d60ada7)
+
 a
+ha![download](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/7df97621-81eb-4d2d-a954-00a550885067)
+
 ha
-ha
-h
+h![download](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/28d61be7-1cfa-4339-8562-213d2886acb0)
+
 ah
 ah
-ah
+ah![download](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/b8a1c50e-2d85-43ee-be39-509efc243ebe)
+
 ah
 ah
 ah
@@ -70,18 +77,23 @@ ah
 ha
 ah
 ha ir oi23oin 2n3oi noi2oni23oni2noi3noi3oni23oin23oni3
+ha![FELV-cat](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/3311dc9a-e57b-4cd8-b0be-31e8d161301f)
+
 ha
-ha
-ha
+ha![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/adea2177-1f4c-43fa-bf69-36103d9f583a)
+
 ha
 ah
 ah
-ha
+ha![download](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/57280fbf-b7c7-4cf1-8e98-adb5b48bf8df)
+
 haa ceo 3223982892983982398289298 2389239823982398 32982389982 329832398328932983298239892389832983298232983982392389823982239823989823
 
-'
+'![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/d54eebc1-c00f-4be2-8c06-4d5fc383aac7)
+
 fbi 
  ac o i2 ino2 389289 ino23 iono 234
+![images](https://github.com/eduffield82/ne-ioteho-hoipash-iopghip-oasgiponia-op-miomoi-mk-aksm-/assets/160559076/6aa744c2-92b9-4fd3-a11a-15a630836dc2)
 
 fbi
 fbi solve oi2 nio io23 ion io2n3o i2io 3 ino23 823 io23ion ion23 oni2 n3io 238u2 io no2i n3 ino2 3 2oin3 io23 i4 
